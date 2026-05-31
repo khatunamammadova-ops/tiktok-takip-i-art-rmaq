@@ -24,6 +24,6 @@ Bazarda olan riskli və hesabın bağlanmasına səbəb ola biləcək "hiylə" p
 ---
 
 ### Sifariş və Ətraflı Məlumat üçün:
-[**takibci.com Rəsmi Saytına Keçid**](https://takibci.com/instagram-takipci-satin-al/)
+[**takibci.com Rəsmi Saytına Keçid**](https://takibci.com)
 
 *Hər hansı bir sualınız və ya texniki dəstək üçün saytdakı canlı dəstək xətti ilə əlaqə saxlaya bilərsiniz.*
